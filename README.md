@@ -1,0 +1,1 @@
+Estou conseguindo acompanhar a aula e fazer os exercícios. O curso é bem ojetivo e eu gosto disso. Obrigada! :)
